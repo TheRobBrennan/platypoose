@@ -23,7 +23,7 @@ Rob moved from the Northeast to the Pacific Northwest during the summer of 2012 
 
 In 2015, the right cosmic energy aligned. Rob was introduced to local singer/songwriter Wyatt Olney in a casual conversation with his girlfriend. Stylistically, Rob and Wyatt couldn't be further apart. Wyatt's masterful use of lyrical imagery, catchy hooks, and intentional pauses - mixed in with elements of hard rock and heavy metal - was the polar opposite to the jam band roots that are firmly part of Rob's artistic style and expression.
 
-Fast forward seven years. Wyatt Olney & The Wreckage continues to excite and ignite fans throughout the Pacific Northwest - performing at some of Seattle's iconic venues (The Showbox, The "Croc" Crocodile) and festivals. A regular guest on Seattle's KISW 99.9 FM, WOATW has appeared several times on "Loud and Local" and performed a headlining set at the Men's Room Redfestival.
+Fast forward seven years. Wyatt Olney & The Wreckage continues to excite and ignite fans throughout the Pacific Northwest - performing at some of Seattle's iconic venues (The Showbox, The Croc, El Corazón) and festivals. A regular guest on Seattle's KISW 99.9 FM, WOATW has appeared several times on "Loud and Local" and performed a headlining set at the Men's Room Redfestival.
 
 2022 is on track to be a banner year for Rob Brennan. In addition to performing and booking west coast tour dates for Summer 2022, he is also involved in writing music for his new music project _Platypoose_.
 
