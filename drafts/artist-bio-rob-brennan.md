@@ -4,9 +4,23 @@
 2022.03.12 - Rob Brennan proudly debuting the custom purple fade [DC California Custom Drums](http://www.dccalifornia.com) kit performing with _Wyatt Olney & The Wreckage_ at Tony V's in Everett, WA - Photo: [Ian Phares](https://www.facebook.com/ian.phares.1)
 
 - TODO: Draft 3-5 paragraphs for my artist biography
-- TODO: Add 3-5 YouTube or other video links
 
 ## Biography
+
+Stay tuned for new performance and video footage featuring my custom kit in 2022.
+
+Music
+
+- Spotify - [Wyatt Olney & The Wreckage](https://open.spotify.com/artist/3ExbLuST1For3zEAbbzNWC)
+
+Videos
+
+- [Wyatt Olney & The Wreckage - "War Within"](https://www.youtube.com/watch?v=9DkgVjpYB2Y)
+- [Wyatt Olney & The Wreckage - "Swan Song"](https://www.youtube.com/watch?v=4ZNhcQXz4lM)
+- [Wyatt Olney & The Wreckage - "TraumaQueen"](https://www.youtube.com/watch?v=WmsJONZEAZE)
+- [Wyatt Olney & The Wreckage - "Get Haunted"](https://www.youtube.com/watch?v=lxEDUu9wHZk)
+- [Wyatt Olney & The Wreckage - "Drag The Waters"](https://www.youtube.com/watch?v=oAPc10BUrMk)
+- [Wyatt Olney & The Wreckage - "Welcome To Seattle"](https://www.youtube.com/watch?v=G4qpFCWK6k8)
 
 ## Stage Setup
 
@@ -57,6 +71,7 @@ Social media
 
 - Twitter - [@therobbrennan](https://twitter.com/therobbrennan)
 - Facebook - [Rob Brennan](https://www.facebook.com/therobbrennan)
+- Spotify - [Wyatt Olney & The Wreckage](https://open.spotify.com/artist/3ExbLuST1For3zEAbbzNWC)
 
 ## Additional photos
 
