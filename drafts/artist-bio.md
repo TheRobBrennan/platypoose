@@ -1,10 +1,10 @@
 # Artist Biography: Rob Brennan - Wyatt Olney & The Wreckage
 
+- TODO: Add images for my Soultone Cymbals and DC California Custom Drums endorsements
 - TODO: Draft 3-5 paragraphs for my artist biography
 - TODO: Add 3-5 YouTube or other video links
 - TODO: Add [Soultone Cymbals](https://www.soultonecymbals.com) details
 - TODO: Add [DC California Custom Drums](http://www.dccalifornia.com) details
-- TODO: Add social media and contact information
 
 ## Biography
 
