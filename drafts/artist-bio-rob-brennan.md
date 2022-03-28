@@ -5,7 +5,7 @@
 
 ## Biography (short version)
 
-TODO Condense and simplify your biography into several paragraphs
+TODO: Condense and simplify your biography into several paragraphs 😅
 
 ## Biography
 
