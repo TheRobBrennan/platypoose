@@ -4,4 +4,4 @@ Welcome to Platypoose - a new place where I will experiment storing some creativ
 
 Behold! Platypoose.
 
-![assets/platypoose.jpeg](assets/platypoose.jpeg)
+![assets/platypoose/platypoose.jpeg](assets/platypoose/platypoose.jpeg)
