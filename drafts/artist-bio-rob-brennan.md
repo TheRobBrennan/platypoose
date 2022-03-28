@@ -9,11 +9,11 @@ TODO: Condense and simplify your biography into several paragraphs 😅
 
 ## Biography
 
-Inspired to bang on a practice pad or boxes and pillows around the house since the age of six years old, music and rhythm have been the foundation of Rob's life. After his parents divorced in 1993, he moved to Upstate New York with his mother and sister - unaware of the opportunities in store.
+Inspired to bang on a practice pad, boxes, and pillows around the house since the age of six years old, music and rhythm have been the foundation of Rob's life. After his parents divorced in 1993, he moved to Upstate New York with his mother and sister - unaware of the opportunities in store.
 
 On a whim, a last-minute choice to take a band class introduced him to one of the most pivotal figures in his life. The late [David Bournazian](https://www.timesunion.com/news/article/David-Bournazian-Mohonasen-s-renowned-music-6004045.php) - "B" as friends and loved ones knew him - wound up guiding and inspiring Rob to not only pursue drumming but to continually strive and pursue live performance while also living your best life.
 
-"B" would not only serve as the foundation for continuing to inspire and challenge Rob, but he also had a knack for knowing when to put the hot-headed and occasionally arrogant teenager in check. The two shared many spirited conversations throughout their adventures - with Rob being the drumline captain of the renowned Mohonasen High School Field Band, throwing down behind the drum kit for the jazz and pep bands, and even participating in orchestral performance and arrangement.
+"B" would not only serve as the foundation for continuing to inspire and challenge Rob, but he also had a knack for knowing when to put the hot-headed and occasionally arrogant teenager in check. The two shared many spirited conversations throughout their adventures - with Rob working his way through the ranks as a freshman up until earning the drumline captain of the renowned Mohonasen High School Field Band, throwing down behind the drum kit for the jazz and pep bands, and even participating in orchestral performance and arrangement.
 
 Upon graduation from high school, Rob was involved in several jam bands while studying at Plattsburgh State University (Plattsburgh, NY) - heavily influenced by the live performance energy of great bands like Led Zeppelin, Metallica, Guns N' Roses, and Pantera with the experimental voyages of Pink Floyd, The Grateful Dead, MMW (Medeski, Martin, and Wood), and Phish. While performing with various bands, Rob was also involved in performing along the Atlantic Coast - including several jazz events in Myrtle Beach, SC, and the Berkshires of Massachusetts. His love and appreciation of the mountains would not go unnoticed - with many performances at venues and festivals throughout the Adirondack Mountains and Catskill Mountains of Upstate New York.
 
@@ -23,7 +23,7 @@ Rob moved from the Northeast to the Pacific Northwest during the summer of 2012 
 
 In 2015, the right cosmic energy aligned. Rob was introduced to local singer/songwriter Wyatt Olney in a casual conversation with his girlfriend. Stylistically, Rob and Wyatt couldn't be further apart. Wyatt's masterful use of lyrical imagery, catchy hooks, and intentional pauses - mixed in with elements of hard rock and heavy metal - was the polar opposite to the jam band roots that are firmly part of Rob's artistic style and expression.
 
-Fast forward seven years. Wyatt Olney & The Wreckage continues to excite and ignite fans throughout the Pacific Northwest - performing at some of Seattle's iconic venues (The Showbox, The Croc, El Corazón) and festivals. A regular guest on Seattle's KISW 99.9 FM, WOATW has appeared several times on "Loud and Local" and performed a headlining set at the Men's Room Redfestival.
+Fast-forward seven years. Wyatt Olney & The Wreckage continues to excite and ignite fans throughout the Pacific Northwest - performing at some of Seattle's iconic venues (The Showbox, The Croc, El Corazón) and festivals. A regular guest on Seattle's KISW 99.9 FM, WOATW has appeared several times on "Loud and Local" and performed a headlining set at the Mens Room Redfestival.
 
 2022 is on track to be an incredible year for Rob Brennan. In addition to performing and booking west coast tour dates for Summer 2022, he is also involved in writing and composing music for his new hybrid jam/electronic music project _Platypoose_.
 
