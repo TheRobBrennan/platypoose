@@ -3,11 +3,33 @@
 ![2022.03.12 - Rob Brennan performing at Tony V's in Everett, WA](../assets/profile/20220312-rob-at-tony-vs.jpeg)
 2022.03.12 - Rob Brennan proudly debuting the custom purple fade [DC California Custom Drums](http://www.dccalifornia.com) kit performing with _Wyatt Olney & The Wreckage_ at Tony V's in Everett, WA - Photo: [Ian Phares](https://www.facebook.com/ian.phares.1)
 
-- TODO: Draft 3-5 paragraphs for my artist biography
+## Biography (short version)
+
+TODO Condense and simplify your biography into several paragraphs
 
 ## Biography
 
-Stay tuned for new performance and video footage featuring my custom kit in 2022.
+Inspired to bang on a practice pad or boxes and pillows around the house since the age of six years old, music and rhythm have been the foundation of Rob's life. After his parents divorced in 1993, he moved to Upstate New York with his mother and sister - unaware of the opportunities in store.
+
+On a whim, a last-minute choice to take a band class introduced him to one of the most pivotal figures in his life. The late [David Bournazian](https://www.timesunion.com/news/article/David-Bournazian-Mohonasen-s-renowned-music-6004045.php) - "B" as friends and loved ones knew him - wound up guiding and inspiring Rob to not only pursue drumming but to continually strive and pursue live performance while also living your best life.
+
+"B" would not only serve as the foundation for continuing to inspire and challenge Rob, but he also had a knack for knowing when to put the hot-headed and occasionally arrogant teenager in check. The two shared many spirited conversations throughout their adventures - with Rob being the drumline captain of the renowned Mohonasen High School Field Band, throwing down behind the drum kit for the jazz and pep bands, and even performing in orchestral performance and arrangement.
+
+Upon graduation from high school, Rob was involved in several jam bands while studying at Plattsburgh State University (Plattsburgh, NY) - heavily influenced by the live performance energy of great bands like Led Zeppelin, Metallica, Guns N' Roses, and Pantera with the experimental voyages of Pink Floyd, The Grateful Dead, MMW (Medeski, Martin, and Wood), and Phish.
+
+In the early winter of 2007, Rob's love for the music of Phish crossed paths with his professional life after accepting a position at Goddard College in Plainfield, VT. Artistically, Rob was often spotted exploring rhythmic adventures on a djembe - to the delight of many students, faculty, and staff.
+
+Rob moved from the Northeast to the Pacific Northwest during the summer of 2012 - embarking on a new adventure to blend his love of live performance, drumming, and creativity with technology. In the late winter of 2014, Rob decided to move from the quaint little town of Port Townsend, WA, right into the Fremont neighborhood of Seattle, WA.
+
+In 2015, the right cosmic energy aligned. Rob was introduced to local singer/songwriter Wyatt Olney in a casual conversation with his girlfriend. Stylistically, Rob and Wyatt couldn't be further apart. Wyatt's masterful use of lyrical imagery, catchy hooks, and intentional pauses - mixed in with elements of hard rock and heavy metal - was the polar opposite to the jam band roots that are firmly part of Rob's artistic style and expression.
+
+Fast forward seven years. Wyatt Olney & The Wreckage continues to excite and ignite fans throughout the Pacific Northwest - performing at some of Seattle's iconic venues (The Showbox, The "Croc" Crocodile) and festivals. A regular guest on Seattle's KISW 99.9 FM, WOATW has appeared several times on "Loud and Local" and performed a headlining set at the Men's Room Redfestival.
+
+2022 is on track to be a banner year for Rob Brennan. In addition to performing and booking west coast tour dates for Summer 2022, he is also involved in writing music for his new music project _Platypoose_.
+
+## Media
+
+Stay tuned for new performance and video footage from my custom [DC California Custom Drums](http://www.dccalifornia.com) kit in 2022 from our upcoming summer tour and recording sessions.
 
 Music
 
