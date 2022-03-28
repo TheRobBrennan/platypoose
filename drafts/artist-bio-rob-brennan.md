@@ -15,7 +15,7 @@ On a whim, a last-minute choice to take a band class introduced him to one of th
 
 "B" would not only serve as the foundation for continuing to inspire and challenge Rob, but he also had a knack for knowing when to put the hot-headed and occasionally arrogant teenager in check. The two shared many spirited conversations throughout their adventures - with Rob being the drumline captain of the renowned Mohonasen High School Field Band, throwing down behind the drum kit for the jazz and pep bands, and even performing in orchestral performance and arrangement.
 
-Upon graduation from high school, Rob was involved in several jam bands while studying at Plattsburgh State University (Plattsburgh, NY) - heavily influenced by the live performance energy of great bands like Led Zeppelin, Metallica, Guns N' Roses, and Pantera with the experimental voyages of Pink Floyd, The Grateful Dead, MMW (Medeski, Martin, and Wood), and Phish.
+Upon graduation from high school, Rob was involved in several jam bands while studying at Plattsburgh State University (Plattsburgh, NY) - heavily influenced by the live performance energy of great bands like Led Zeppelin, Metallica, Guns N' Roses, and Pantera with the experimental voyages of Pink Floyd, The Grateful Dead, MMW (Medeski, Martin, and Wood), and Phish. While performing with various bands, Rob was also involved in performing along the Atlantic Coast - including several jazz events in Myrtle Beach, SC.
 
 In the early winter of 2007, Rob's love for the music of Phish crossed paths with his professional life after accepting a position at Goddard College in Plainfield, VT. Artistically, Rob was often spotted exploring rhythmic adventures on a djembe - to the delight of many students, faculty, and staff.
 
